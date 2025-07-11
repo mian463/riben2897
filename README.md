@@ -26,4 +26,4 @@
 总结
 想要安全使用“日本AV免费”资源，务必要选择合法站点、查看更新频率、灵活搜索内容，并妥善应对广告风险。
 
-<span style="display:none;">[Canonical link](  )span>
+<span style="display:none;">[Canonical link](  )<span>
